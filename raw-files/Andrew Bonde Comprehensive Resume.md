@@ -1,7 +1,7 @@
 # Andrew Bonde
 ajbonde@oakland.edu | (248)-909-9977
 
-> I am not very sure what else you are looking for in this comprehensive resume. Please do not hesitate to reach out if you wish to know something that is not this or my previous resume. Thanks a ton!
+> I am not very sure what else you are looking for in this comprehensive resume. Please do not hesitate to reach out if you wish to know something that is not present in this or my previous resume. Thanks a ton!
 
 <br>
 
